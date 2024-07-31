@@ -442,12 +442,12 @@ play "chopsticks" any better than a well-taught beginner.
 
 Without performance training, even good performers will not perform to their
 best ability, and the majority of students will end up thinking that piano
-performance as a kind of hell that is associated with music or piano. Once that
+performance is a kind of hell that is associated with music or piano. Once that
 attitude is ingrained in youth, they will carry it into adulthood. The truth
 should be the exact opposite. Performance should be the final goal, the final
 reward for all the hard work. It is the demonstration of the ability to sway an
 audience, the ability to convey the grandest designs of the greatest musical
-geniuses that every lived. Secure mental play is the single most effective
+geniuses that ever lived. Secure mental play is the single most effective
 method for reducing stage fright.
 
 One way to introduce students to performing at recitals is to hold mock
